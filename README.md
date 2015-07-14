@@ -1,3 +1,2 @@
-easy and usability  app, within backend Parse, sign is and log in + google and face .and tube .... 
 
 Hi dear developer if you want make or create  something new Welcome !
